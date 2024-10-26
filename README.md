@@ -1,4 +1,4 @@
-## Privacy Policy for Mahoo App
+## Privacy Policy for Mahoo and Rahoo Apps
 
 ### Information We Collect
 
